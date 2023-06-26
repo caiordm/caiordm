@@ -1,4 +1,4 @@
-## Olá pesoal! Me chamo Caio. 👋
+## Olá pesoal 👋
 
 
 <div>
